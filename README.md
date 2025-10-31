@@ -1,2 +1,27 @@
+<div align="center"> 
+
+![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=blueviolet&amp;label=i+see+you  )
+
 # Introduction
-introduction yes fr
+
+<div align="center"> 
+
+hi ,, im ari, or you may call me mint or ascended!
+
+she / her fem
+
+likes orcas , cats , and moths  ^ _ ^ 
+
+birthday december 9 :)
+
+semi - artist , extroverted .
+
+c + h freely unless with someone / dni
+
+literally on 24/7 ( after school / at home / weekends )
+
+dnc my skins btw ,,, wait whys this here this is an introduction .
+
+literally shelly from dw 💔💔
+
+ok bye
